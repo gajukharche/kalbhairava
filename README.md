@@ -3,4 +3,4 @@ kalbhairava - The devine Soal
 
 
 
-# How Do yuo define Yourself?
+# How Do you define Yourself?
